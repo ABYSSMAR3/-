@@ -234,6 +234,68 @@
 
 (𝘐𝘧 𝘐 𝘥𝘪𝘥𝘯'𝘵 𝘮𝘦𝘯𝘵𝘪𝘰𝘯 𝘺𝘰𝘶 𝘱𝘭𝘴 𝘥𝘰𝘯'𝘵 𝘵𝘩𝘪𝘯𝘬 𝘐 𝘩𝘢𝘵𝘦 𝘺𝘰𝘶, 𝘐 𝘭𝘰𝘷𝘦 𝘢𝘭𝘭 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘦𝘲𝘶𝘢𝘭𝘭𝘺!) 
 
+<img width="1280" height="165" alt="Untitled13_20260917103743" src="https://github.com/user-attachments/assets/82e76b0e-6701-4d21-9744-0a764beac6cd" />
+
+
+•BYI
+
+• I’m very nice when u int w/ me but I will be somewhat awkward bc I have social anxiety and ver antisocial
+
+•Please ask before you C+h and I will also do the same ( mostly bc I will always be sitting with someone so do ask both of us)
+
+•I am mostly afk so I recommend whispering me unless I catch you already 
+
+•I make very suggestive jokes if we’re very close but PLEASE PLEASE PLEASE TELL ME IF IT MAKES U UNCOMFORTABLE AND I WILL STOP IMMEDIATELY I WONT KNOW ANYTHING IF YOU DONT TELL ME A THING!!!!
+
+•If I have any kind of dni in my name ( dniuf, dniucf, dniuvcf, dniuparty, dniubf, or dniu specific person or ppl) please respect my name and go on b ur day thank you 
+
+
+• I’m mostly known as the therapist friend for some not all so feel the need to vent but please ask first ( I’m not good at comforting with words so bare with me)
+
+•I block freely so if I have a problem with you just know u won’t see me again I have no regrets.
+
+•Sometimes I’m distant and will isolate sometimes and push u away but don’t think I hate you at all sometimes I need space and I wanna be in my own world.
+
+
+<img width="1280" height="240" alt="IMG_0463" src="https://github.com/user-attachments/assets/6d83d340-9894-4632-aba1-341da588232b" />
+
+•DNI
+
+Pedophiles
+
+zoophiles
+
+loli/shotacons
+
+racist
+
+homo/transphobes
+
+r@pe jokes ( that shit isn’t funny grow the fuxk up.)
+
+tr*mp supporters
+
+overly religious ppl
+
+overly political ppl
+
+tfc fans
+
+hh/hb fans
+
+darkshippers
+
+proshippers
+
+ppl who make up bullshit drama and spread lies ( again grow the fuck up and leave me alone And get a fucking life you piss me off.) 
+
+childish ppl
+
+immature ppl
+
+under 12 ( unless Ive spoken to u first.)
+
+over 18+ ( unless I’ve spoken to you first.)
 
 
 <img width="1279" height="406" alt="IMG_0462" src="https://github.com/user-attachments/assets/5eb97f9e-f410-4013-954f-5fef6e12b4d1" />
